@@ -11,7 +11,7 @@ One of the most impressive properties of Strenx P700 plates is their high yield 
 <p>Applications of Strenx P700 Plates</p>
 Strenx P700 plates are perfect for a wide range of applications that require high strength and durability, including heavy transports, containers, and construction machinery. They are also commonly used in industries that require resistance to abrasion and wear, such as mining and agriculture. In addition, these plates can be used in building bridges, cranes, and offshore structures.
 
-</p>Benefits of Strenx P700 Plates</p>
+<p>Benefits of Strenx P700 Plates</p>
 There are several benefits to using Strenx P700 plates:
 They offer high strength and toughness, which means they can withstand extreme conditions without cracking or breaking.
 They are relatively lightweight, making them easier to transport and use. They also require less maintenance than other materials, which can reduce costs in the long run.
